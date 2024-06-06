@@ -2,4 +2,4 @@
 
 Sou o __Bruno__
 
-Estudo na escola [Nicota](instagram/escola.donanicota)
+Estudo na escola [Nicota](https://www.instagram.com/escola.donanicota/)
