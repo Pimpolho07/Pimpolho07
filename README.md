@@ -6,4 +6,4 @@ Estudo na escola [Nicota](https://www.instagram.com/escola.donanicota/)
 
 Pretendo me aprofundar em programação 💻🤯
 
-![](https://tenor.com/pt-BR/view/programming-gif-26894409)
+![](https://media1.tenor.com/m/PshaXsSgKdEAAAAC/programming.gif)
